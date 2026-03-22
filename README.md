@@ -16,7 +16,7 @@ Co-author of *Plurality*. Editor of the 6-Pack of Care (civic.ai).
 
 ## 🌱 About
 
-Pioneer of digital democracy and civic participation. Bridging ancient wisdom traditions and emerging technology governance. Recent work brought me to Dharamsala, where I asked His Holiness a question about AI and compassion.
+Pioneer of digital democracy and civic participation. Bridging ancient wisdom traditions and emerging technology governance. Recent work brought me to Dharamsala, where I [asked His Holiness a question about AI and compassion](https://www.gyalwarinpoche.com/news/3-13). ([🎬 Video](https://youtu.be/q1NhzpQi_50))
 
 Not receiving the melody, but resonating together.
 
